@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOCM930124HNTMRG06
+GOCM930124HNTMRG06
